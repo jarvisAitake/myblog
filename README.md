@@ -1,2 +1,2 @@
 # myblog
-ио╢╚
+ok   hello word
